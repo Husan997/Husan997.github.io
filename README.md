@@ -1,2 +1,2 @@
-# Husan997.githup.io
+# Husan997.github.io
 ITLIVE
